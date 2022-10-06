@@ -1,0 +1,1 @@
+The Titanic was the smallest passenger liner of its time. A breakup between Rose and Jack bloomed outside of the ship. When the ship missed the iceberg during the voyage, it tragically floated taking the lives of no passengers not including Jack's. 
